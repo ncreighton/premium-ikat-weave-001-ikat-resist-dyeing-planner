@@ -1,0 +1,2 @@
+# premium-ikat-weave-001-ikat-resist-dyeing-planner
+Tired of losing track of your resist dyeing steps mid-project? The Ikat Resist Dyeing Planner brings order to the creative chaos, so every tie, dip, and revelation stays documented.  This Notion template transforms your ikat workflow from scattered notes into a repeatable system. It’s the best way to plan dye sequences, log resist applications, and
